@@ -1,0 +1,1 @@
+NOAA MAP FILE. This map is not mine, all rights go to the SPC, NWS and NOAA. Please intend to use this map to scare people with fake outlooks. This is a map to create your own outlooks to laugh at and be creative with!
